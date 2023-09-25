@@ -1,6 +1,6 @@
 
  ***El programador creó un software innovador que revolucionó la forma en que se realizan ciertas tareas*** 
- ![siempre con algo de humor] (https://pixabay.com/es/gifs/dibujos-animados-3d-hombre-629/)
+ ![motivacion y determinacion](https://pixabay.com/es/images/search/programaci%c3%b3n%20gratis/)
 
 
 <!--
