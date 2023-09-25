@@ -3,7 +3,7 @@
  
  ***The programmer created innovative software that revolutionized the way certain tasks are performed***
 
- ![**life without internet is not life**](https://www.pngwing.com/es/free-png-hyskj){widht=60%}
+ ![**life without internet is not life**](https://www.pngwing.com/es/free-png-hyskj){width=60%}
  
 
 1. 🚀	 **studying at 4geeks academy**
