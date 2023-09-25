@@ -3,7 +3,7 @@
  
  ***The programmer created innovative software that revolutionized the way certain tasks are performed***
 
-[![imagen-teclado-y-relojes.jpg](https://i.postimg.cc/GhkdHJ2R/imagen-teclado-y-relojes.jpg)](https://postimg.cc/BXQdzFH7){width=25%}
+[![imagen-teclado-y-relojes.jpg](https://i.postimg.cc/GhkdHJ2R/imagen-teclado-y-relojes.jpg)](https://postimg.cc/BXQdzFH7)
  
 
 1. 🚀	 **studying at 4geeks academy**
