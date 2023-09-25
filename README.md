@@ -1,4 +1,4 @@
-DOCTYPEhtml
+
 <div>
  < img src="https://giphy.com/gifs/KeepCoding-code-programmer-programacion-OWgDiFQbtizpdLewE5/>
 </div>
