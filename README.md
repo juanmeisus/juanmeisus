@@ -1,6 +1,6 @@
 
  ***El programador creó un software innovador que revolucionó la forma en que se realizan ciertas tareas*** 
- ![siempre con algo de humor] (https://www.istockphoto.com/es/foto/programador-de-software-de-c%C3%B3digo-de-programaci%C3%B3n-de-ordenador-gm486759942-73388915)
+ ![siempre con algo de humor] (https://pixabay.com/es/gifs/dibujos-animados-3d-hombre-629/)
 
 
 <!--
